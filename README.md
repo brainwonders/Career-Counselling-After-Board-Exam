@@ -1,4 +1,4 @@
-Career Counselling After Board Exam |Brainwonders At Ahmedabad|
+Career Counselling After Board Exam |Brainwonders At Baroda|
 Ankita Limbasiya
 Career Counselling After Board Exam
 
